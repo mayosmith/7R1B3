@@ -1,0 +1,7 @@
+{
+    "name": "7R1B3",
+    "main": "7R1B3.js",
+    "dependencies": {
+        "express": "~4.0.0",
+    }
+}
