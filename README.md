@@ -5,4 +5,4 @@
 - Raemond Station
 
 
-Read the book mayosmith/7R1B3/book
+Read the book on Github mayosmith/7R1B3/book
