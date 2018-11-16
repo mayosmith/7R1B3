@@ -66,14 +66,13 @@ than the prisoner. Maybe the package got lost,” the
 officer said.
 
 “Maybe you’re right,” Kurt said, but inside he was 
-doubtful. The trial drove a wedge between his sister 
-and him. Six months later, their mother died of a 
-subarachnoid hemorrhage. They let Kurt go to the 
-funeral, but he was flanked by guards, cuffed, and not
-allowed to touch or hug anyone. It was a spectacle. The
-service wasn’t even over when they packed him back in 
-the van and sped off. Kurt spoiled the occasion and his 
-sister still hadn’t forgiven him for it.
+doubtful. Three months into his sentence, their mother
+died of a subarachnoid hemorrhage. They let Kurt go to
+the funeral, but he was flanked by guards, cuffed, and
+notallowed to touch or hug anyone. It was a spectacle.
+The service wasn’t even over when they packed him back
+in the van and sped off. Kurt spoiled the occasion and
+his sister still hadn’t forgiven him for it.
 
 The CO handed Kurt an envelope with sixty-five dollars 
 in gate money, then pressed a button that unlocked the 
