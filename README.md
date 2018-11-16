@@ -56,10 +56,9 @@ Receiving & Delivering, the last stop before his
 discharge. They asked him a dozen questions to make sure
 he was who he said he was. Then they made him wait.
 
-“Did my sister leave a bindle?” Kurt asked the CO 
-hunched over the counter. The man checked the screen 
-and shook his head. “I wrote her every week. Heard 
-nothing back.”
+“Did my sister leave a bindle?” Kurt asked the CO. The 
+man checked the screen and shook his head. “I wrote her
+every week. Heard nothing back.”
 
 “Go easy on her. They say prison is harder on the family
 than the prisoner. Maybe the package got lost,” the 
