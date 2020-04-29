@@ -11,9 +11,9 @@ By John Mayo-Smith
 
 
 
-Fighting corruption is not just good governance.
-It’s self-defense. It’s patriotism.
-—Joe Biden
+"We hang the petty thieves and appoint the great ones." 
+- Aesop 
+
 
 
 
