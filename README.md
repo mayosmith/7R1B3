@@ -11,8 +11,7 @@ By John Mayo-Smith
 
 
 
-"We hang the petty thieves and appoint the great ones." 
-- Aesop 
+"We hang the petty thieves and appoint the great ones." -- Aesop 
 
 
 
