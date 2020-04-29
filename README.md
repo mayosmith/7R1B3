@@ -67,7 +67,7 @@ officer said.
 doubtful. Three months into his sentence, their mother
 died of a subarachnoid hemorrhage. They let Kurt go to
 the funeral, but he was flanked by guards, cuffed, and
-notallowed to touch or hug anyone. It was a spectacle.
+not allowed to touch or hug anyone. It was a spectacle.
 The service wasn’t even over when they packed him back
 in the van and sped off. Kurt spoiled the occasion and
 his sister still hadn’t forgiven him for it.
